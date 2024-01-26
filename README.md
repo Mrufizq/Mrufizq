@@ -9,7 +9,6 @@
   - 🚀 Open to learning new languages and expanding my knowledge.
   
   - 💪 Always wanting to improve.
-
   <br>
   
 
