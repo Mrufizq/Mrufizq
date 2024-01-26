@@ -1,5 +1,4 @@
 
-![Recurso 1]()
 
 <div>
 
