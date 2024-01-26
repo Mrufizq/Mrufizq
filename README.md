@@ -6,9 +6,9 @@
 
   - 🎓 Web Application Development Student in Granada.
  
-  - 🚀 Open to learning new languages and expanding my knowledge.
-  
-  - 💪 Always wanting to improve.
+  - 💻 Open to learning new languages and expanding my knowledge.
+
+    
   <br>
   
 
