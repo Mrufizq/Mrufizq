@@ -9,8 +9,6 @@
   - 🚀 Open to learning new languages and expanding my knowledge.
   
   - 💪 Always wanting to improve.
-  
-  - 🎮🏍️ Videogames and motorcycle lover.
 
   <br>
   
